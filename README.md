@@ -13,8 +13,8 @@ $\color{#ADD8E6}  ‎   addie/clover .$ <br>
   <p align="center"><img align="right" width="80" height="80" src="https://github.com/user-attachments/assets/661b3f83-4de4-4d52-97b7-552dc28a4b15">
 
 
-  $\color{#42A5F5}  ‎   nonbinary .$ <br>
-$\color{#4FC3F7}  ‎   she/they/he/it .$ <br>
+  $\color{#42A5F5}  ‎   no clue .$ <br>
+$\color{#4FC3F7}  ‎   they/it/she .$ <br>
 
   <p align="center">
   23+/under 13 iwec, hh/hb fans iwec , pro/darkship dni, forsaken/dod fans iwec
