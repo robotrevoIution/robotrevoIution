@@ -9,7 +9,7 @@ $\color{#1A66BB} 𝚈𝚘𝚞‎ 𝚐𝚎𝚝‎ 𝚒𝚝‎ 𝚛𝚒𝚐𝚑�
 
   <p align="center"><img align="center" width="80" height="80" src="https://github.com/user-attachments/assets/bd2eb17e-310e-4c7e-a41a-7c75750b197a">
   <p align="center"><img align="left" width="80" height="80" src="https://github.com/user-attachments/assets/50b1cf36-7851-456f-b486-5a73ae3da5b2">    <p align="right">
-$\color{#ADD8E6}  ‎   addie/clover .$ <br>  
+$\color{#ADD8E6}  ‎   addie/wolpertinger  .$ <br>  
   <p align="center"><img align="right" width="80" height="80" src="https://github.com/user-attachments/assets/661b3f83-4de4-4d52-97b7-552dc28a4b15">
 
 
