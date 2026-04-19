@@ -17,7 +17,7 @@ $\color{#ADD8E6}  ‎   addie/wolpertinger  .$ <br>
 $\color{#4FC3F7}  ‎   they/it/she .$ <br>
 
   <p align="center">
-  23+/under 13 iwec, hh/hb fans iwec , pro/darkship dni, forsaken/dod fans iwec
+  iwc. i dont wanna put a dni list rn
     (other than that, feel free to int!!! i dont bite i PROMISE i love making conversation!
     im highkey shy so its better to whisper me.
     
